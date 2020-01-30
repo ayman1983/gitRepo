@@ -8,4 +8,11 @@ Transfered gitRepo from desktop to VSD software
 I wrote the Steps*/
 The first project is complex.
 wewwwkk
+tzertrtr
+
+trt
+rtr
+t
+rtr
+wall street
 
